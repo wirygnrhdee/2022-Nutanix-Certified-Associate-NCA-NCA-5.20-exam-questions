@@ -1,0 +1,1 @@
+# 2022-Nutanix-Certified-Associate-NCA-NCA-5.20-exam-questions
